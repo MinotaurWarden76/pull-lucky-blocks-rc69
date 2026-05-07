@@ -1,4 +1,4 @@
-
+Experience pull lucky blocks like never before with pull lucky blocks top Scripts, the #1 Script. Includes god mode and one-hit kill for unbeatable
 
 
 
